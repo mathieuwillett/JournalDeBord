@@ -15,7 +15,7 @@ J'ai choisi cette musique, car elle vient de Cyberpunk Edgerunners et j'adore la
 ### [Le Voyageur](https://i.redd.it/zj4we7fjulia1.jpg)
 J'ai choisi cette image, car elle représente le Voyageur de la série Destiny. Dans le jeu, le Voyageur est l'équivalent de Dieu, et ayant près de 6000 heures dans le jeu depuis presque 10 ans, il est maintenant une figure importanet pour moi.
 
-### Lien 4 
+### [Ellie de The Last of Us]
 Expliquer pourquoi vous avez choisi ce lien. 
 
 ### Lien 5 
