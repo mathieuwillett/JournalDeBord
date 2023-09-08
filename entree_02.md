@@ -9,11 +9,11 @@ L'oeuvre *Bulle* m'interpelle beaucoup puisque c'est une oeuvre interactive qui 
 ### [Up'Life](https://youtu.be/M4wW5Imxpdg)
 Cette vidéo est sortie il y a des années et pourtant j'y reviens toujours. Elle donne un coup de coeur même si elle est juste 8 minutes. j'adore les nouvelles donc les histoires courtes avec un punch sont les meilleures selon moi.
 
-### Lien 2 
-Expliquer pourquoi vous avez choisi ce lien.
+### [Little Stranger - David Podsiadło](https://youtu.be/KaQ1m8Et3aY)
+J'ai choisi cette musique, car elle vient de Cyberpunk Edgerunners et j'adore la série, le jeu et le style Cyberpunk en général. De plus, cette musique m'a beacoup aidé quand j"ai laché l'école l'an passé.
 
-### Lien 3 
-Expliquer pourquoi vous avez choisi ce lien.  
+### [Le Voyageur](https://i.redd.it/zj4we7fjulia1.jpg)
+J'ai choisi cette image, car elle représente le Voyageur de la série Destiny. Dans le jeu, le Voyageur est l'équivalent de Dieu, et ayant près de 6000 heures dans le jeu depuis presque 10 ans, il est maintenant une figure importanet pour moi.
 
 ### Lien 4 
 Expliquer pourquoi vous avez choisi ce lien. 
