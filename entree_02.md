@@ -15,9 +15,9 @@ J'ai choisi cette musique, car elle vient de Cyberpunk Edgerunners et j'adore la
 ### [Le Voyageur](https://i.redd.it/zj4we7fjulia1.jpg)
 J'ai choisi cette image, car elle représente le Voyageur de la série Destiny. Dans le jeu, le Voyageur est l'équivalent de Dieu, et ayant près de 6000 heures dans le jeu depuis presque 10 ans, il est maintenant une figure importanet pour moi.
 
-### [Ellie de The Last of Us]
-Expliquer pourquoi vous avez choisi ce lien. 
+### [Ellie de The Last of Us](https://i.redd.it/ky8oycwievl81.jpg)
+J'aime beaucoup The Last of Us.
 
-### Lien 5 
-Expliquer pourquoi vous avez choisi ce lien. 
+### [Star Wars 3](https://prod-ripcut-delivery.disney-plus.net/v1/variant/disney/B38E9B3419A8AF5BA743C323CF835E7864A0406C310697CC34A072DE7E940FAD/scale?width=1200&aspectRatio=1.78&format=jpeg)
+Définitivement le meilleur Star Wars. Désolé monsieur mais si votre préféré c'est pas le 3 on va pas bien s'entendre.
 
