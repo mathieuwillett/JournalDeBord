@@ -2,11 +2,9 @@
 ## Plan de carrière
 
 ### Présentation
-Parlez de vous. 
 Je m'appelle Mathieu, j'ai 20 ans et je suis en technique d'intégration multimédia (duh). J'aime beaucoup les jeux vidéos, les films, la musique et l'art aussi un peu même si je ne m'y connais pas trop bien.
 
 ### Intérêts dans le domaine
-Parlez de vos intérêts en multimédia. 
 Aller dans le domaine des jeux vidéos m'intéresse, mais avec tous les "layoffs" qui arrivent en ce moment, je regarde le tout avec de l'hésitation. Le web m'intéresse aussi beaucoup.
 
 ### Emplois qui vous intéressent
