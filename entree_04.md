@@ -2,8 +2,8 @@
 ## Décrire 5 emplois du domaine du multimédia
 Choisissez des emplois qui pourraient vous intéresser. 
 
-### Emploi 1 - Identification
-Écrire 4 à 5 lignes. Parler des tâches reliées à l'emploi. Expliquer où ces personnes travaillent. Décrire les qualités requises pour pratiquer ce métier. Un point qui vous intéresse dans ce métier. Un point qui rend ce métier moins intéressant pour vous.  
+### Emploi 1 - Monteur vidéo
+Un monteur vidéo assiste à la post-production d'un montage, d'un court métrage ou d'un film. Il peut aussi s'occuper du matériel audio-visuel. 
 
 ### Emploi 2 - Identification
 4 à 5 lignes
