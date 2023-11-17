@@ -8,7 +8,7 @@ Pour me préparer à l'examen, j'ai écouté pendant les cours et j'ai utilisé 
 J'aurais pu vérifier les Powerpoints pour avoir une meilleure note et j'aurais pu relire les questions pour ne pas me tromper.
 
 ### Gestion du temps
-jJ'ai fini en 5 minutes mais j'aurais pu prendre un peu plus de temps et j'aurais eu 100% je pense.
+J'ai fini en 5 minutes mais j'aurais pu prendre un peu plus de temps et j'aurais eu 100% je pense.
 
 ### Outils et ressources
 Le cours et mes connaissances antérieures.
